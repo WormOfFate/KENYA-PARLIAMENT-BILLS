@@ -1,4 +1,4 @@
-# **The Judiciary Implementation Bill, 2026 (First Successive Bill)**
+# **The Judiciary Reform Act 1, 2026**
 
 **A Bill for an Act of Parliament to give effect to aspects of judicial authority, structure, qualifications, and appointments consistent with Chapter Ten of the Constitution of Kenya, 2010, and to provide for related matters.**
 

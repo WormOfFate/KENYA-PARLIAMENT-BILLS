@@ -1,4 +1,4 @@
-# **The Judiciary Reform Act, 2026 (No. 2)**
+# **The Judiciary Reform Act 2, 2026**
 
 **A Bill for an Act of Parliament to give effect to enhanced due process, jury procedures, trial rights, and sentencing mechanisms in the Judiciary, consistent with Articles 50, 159, 160, 165, 169 and Chapter Ten of the Constitution of Kenya, 2010, and to provide for connected purposes.**
 

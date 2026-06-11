@@ -1,4 +1,4 @@
-# **The Judiciary Reform Act, 2026 (No. 3)**
+# **The Judiciary Reform Act 3, 2026**
 
 **A Bill for an Act of Parliament to give effect to court structures, jurisdiction, judicial accountability, the Attorney Bar, and to amend the Penal Code (Cap 63) and related statutes on classification of crimes, capital punishment, theft, restitution, and sentencing, consistent with Articles 26, 50, 159, 160, 165, 169, 170 and Chapter Ten of the Constitution of Kenya, 2010.**
 
