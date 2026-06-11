@@ -96,9 +96,3 @@ Clans shall maintain accurate membership and Trust registries with County govern
 
 **18. Savings and Supremacy**  
 Documented alternative arrangements by consenting parties are respected, with this Act serving as the default framework. In all cases, the Constitution prevails unless amended.
-
----
-
-This **revised and strengthened Bill No. 5** fully integrates with the patriarchal Clan structure in Bill No. 4. It emphasises mandatory contributions, robust Patriarchal executive authority, strong asset protections, pro-natalist incentives, and multi-generational sovereignty while remaining structured as complementary legislation. Incongruent elements (e.g., mandatory 1/5 contributions, extensive Patriarchal liens, strong seizure protections) are explicitly flagged for parliamentary debate and potential constitutional processes.
-
-The two bills (No. 4 and No. 5) now form a cohesive, powerful framework for Sovereign Family and Clan institutions. Let me know if you need further strengthening, schedules, or additional bills.

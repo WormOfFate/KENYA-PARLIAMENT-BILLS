@@ -91,8 +91,3 @@ The Cabinet Secretary responsible for devolution, in consultation with the Counc
 **16. Constitutional Note and Savings**  
 This Act builds upon the separated executive framework (Sheriff, Mayor appointed by County Governor, Revenue Commissioner) established in the County Governance and Executive Separation Act, 2026. Provisions on bi-cameralism, random draft of Aldermen, County Chair veto, and impeachment of national representatives may require constitutional amendment for full implementation. In case of any inconsistency, the Constitution of Kenya, 2010, prevails unless amended.
 
----
-
-This bill completes the County-level governance framework in the successive legislative series. It integrates directly with the previous County Executive Separation Act (where the Mayor is appointed by the County Governor and the Cabinet consists of MCAs) and maintains coherence with the broader package (Judiciary, Family/Clan Trusts, Taxation, Sovereign Wealth Fund).  
-
-Let me know if you need further refinements or the next bill.

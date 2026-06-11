@@ -79,11 +79,3 @@ Cabinet Secretaries for Finance, Education, Health, and Agriculture shall issue 
 **13. Constitutional Note**  
 This Act advances direct citizen benefits while progressively reforming SHA and the university funding model. The 10%-100% phasing ensures fiscal prudence and service continuity. Inconsistencies with existing laws are resolved in favour of this Act’s objectives, subject to constitutional supremacy.
 
----
-
-### Summary of Integration Strategy
-- **SHA Override**: Direct hospital stipends gradually replace SHA’s institutional/contributory model (10% Year 1 → 100% Year 10). This addresses current SHA challenges (payment delays, low uptake, fraud) by empowering patients directly.
-- **University Funding Override**: Direct student stipends replace capitation and the need-based scholarship/loan model progressively. This simplifies administration and ties funding to students rather than institutions.
-- **Phasing Model**: Smooth 10% annual shift minimises disruption, allows evaluation, and builds public support. Savings fund the Sovereign Wealth Fund and better-targeted benefits.
-
-This maintains coherence with the full legislative package (fiscal discipline, SWF, County reforms, etc.). Let me know if you need detailed schedules, costing estimates, or further refinements.
